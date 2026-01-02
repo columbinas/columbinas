@@ -5,9 +5,9 @@
 
 hi sigmas 
 
-currently coming off hiatus and will be updating all my social medias! thanks for bearing with me ^_^
+editing my socials
 
-bio edit: 06/15/25
+bio edit: 01/02/26
 
 best regards,
 finn
@@ -27,7 +27,7 @@ I make nsfw jokes sometimes, just depends on the person. if this makes you uncom
 
 I block ANYONE. I feel makes me or my friends uncomfortable//upset very freely!! this is for my own comfort//safety. I don't care who you are /srs :,)
 
-any pony skins with "ME" in it means its an irl! ( most constant irls [here](https://pronouns.cc/@finnmertens) or [here](https://rentry.co/varesasirls) )
+any pony skins with "ME" in it means its an irl! ( most constant irls [here](https://pronouns.cc/@mascaraluctatori) or [here](https://rentry.co/varesasirls) )
 
 I am delusional so please be aware, I may hide you or dislike you if you conflict with that in any way :,).
 
