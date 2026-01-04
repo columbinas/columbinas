@@ -75,7 +75,7 @@ you genuinely hate on selfship- you're no fun
 
 weird kinnies
 
-non-traumagenic systems//endo//tulpa systems and their supporters//defenders
+non-traumagenic systems//endo//tulpa systems and their supporters//defenders AND/OR "systems" that haven't been diagnosed and go around saying they're a system!
 
 " you like x more than me " suuuureeee pal!!....
 
