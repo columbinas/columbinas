@@ -1,13 +1,12 @@
 
-![hawkseyes](https://github.com/user-attachments/assets/d39dd918-074c-49db-b106-5c1e1fc86f2b)
+![hyposelenia](https://files.catbox.moe/i3a3xh.png)
 # intro !! 
 <p align="center">
 
-hi sigmas 
+finally updated this... now to decorate!
+sorry im hashtag employed and have a life... ponytown has to wait </3
 
-editing my socials
-
-bio edit: 01/02/26
+bio edit: 01/04/26
 
 best regards,
 finn
