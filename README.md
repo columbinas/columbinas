@@ -53,8 +53,6 @@ mha fandom.. some of y'all are weird as FUCK. and you need to stay away from me.
 
 roleplayers, I dont roleplay at all. NO HATE!!
 
-systems in general, IWEC. i don't hate you, i've had many bad experiences with systems /gen
-
 ![image](https://files.catbox.moe/pba1xk.png)
 
 # DO NOT INTERACT
