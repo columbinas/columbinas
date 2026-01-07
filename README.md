@@ -89,7 +89,7 @@ TREND HOPPERS!!
 
 # What else do I need to know?
 
-you can always pm me and ask me for my discord or tiktok ^_^!!! I will give you it if I trust you enough otherwise here are some links!
+you can always pm me and ask me for my discord or tiktok ^_^!!! I will give you it if you ask!
 [my rentry hoard list](https://rentry.co/xylene) // [pronouns.page](https://en.pronouns.page/@equaalba) // [my carrd](https://celadonmare.carrd.co/#) // [my strawpage (SIGN IT PLSPSLPSLS)](https://selenia.straw.page/)
 
 ![BINA ME!! IRL!!](https://files.catbox.moe/8wl7eg.jpg)
