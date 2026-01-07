@@ -57,7 +57,7 @@ roleplayers, I dont roleplay at all. NO HATE!!
 
 # DO NOT INTERACT
 
-No current in depth dni list sorry, major ones are here though!
+in depth dni [here](https://rentry.co/sulking), otherwise here is a shortened version
 
 you dont like adventure time//hate on it heavily, that show is everything to me and helps me cope + is a spinterest I will be talking about it as much as I can. /srs
 
