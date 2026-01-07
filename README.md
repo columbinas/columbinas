@@ -3,13 +3,14 @@
 # intro !! 
 <p align="center">
 
-finally updated this... now to decorate!
-sorry im hashtag employed and have a life... ponytown has to wait </3
+decorated a bit...
+CHECK OUT MY LINKS ON THE SIDE OR THE BOTTOM OF THIS GITHUB!! THEY'RE SUPA COOLSIES :)))!!
 
-bio edit: 01/04/26
+FOR NOW... HII!! I'm selenia or finn!! I go by he/they/it pronouns, any work! I am 18!!! I have a beautifully cutieful handsome partner!!... I am the biggest fattest columbina fan/irl
+I promise i'm nice... just talk to me!!
 
-best regards,
-finn
+bio edit: 01/06/26
+
 </p>
 
 ![image](https://files.catbox.moe/pba1xk.png)
