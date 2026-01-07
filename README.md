@@ -9,6 +9,8 @@ CHECK OUT MY LINKS ON THE SIDE OR THE BOTTOM OF THIS GITHUB!! THEY'RE SUPA COOLS
 FOR NOW... HII!! I'm selenia or finn!! I go by he/they/it pronouns, any work! I am 18!!! I have a beautifully cutieful handsome partner!!... I am the biggest fattest columbina fan/irl
 I promise i'm nice... just talk to me!!
 
+where to find me:  MHA/docks/GI/DW areas! I typically am on safe server 1 or 18+
+
 bio edit: 01/06/26
 
 </p>
