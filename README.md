@@ -90,4 +90,4 @@ TREND HOPPERS!! /AIMMMMED
 you can always pm me and ask me for my discord or tiktok ^_^!!! I will give you it if I trust you enough otherwise here are some links!
 [my rentry hoard list](https://rentry.co/xylene) // [pronouns.page](https://en.pronouns.page/@equaalba) // [my carrd](https://celadonmare.carrd.co/#) // [my strawpage (SIGN IT PLSPSLPSLS)](https://selenia.straw.page/)
 
-![BINA ME!! IRL!!](https://files.catbox.moe/xwpb28.webp)
+![columbina](https://files.catbox.moe/xwpb28.webp)
