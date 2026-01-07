@@ -25,7 +25,7 @@ I make nsfw jokes sometimes, just depends on the person. if this makes you uncom
 
 I block ANYONE. I feel makes me or my friends uncomfortable//upset very freely!! this is for my own comfort//safety. I don't care who you are /srs :,) (this includes current friends)
 
-any pony skins with "SF" in it means its an irl! ( most constant irls [here](https://pronouns.cc/@selenia) or [here](https://rentry.co/varesasirls) )
+any pony skins with "me" in it means its an irl! ( most constant irls [here](https://pronouns.cc/@selenia) or [here](https://rentry.co/varesasirls) )
 
 I am delusional so please be aware, I may hide you or dislike you if you conflict with that in any way :,). (these are diagnosed!)
 
