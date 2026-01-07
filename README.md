@@ -1,5 +1,5 @@
 
-![hyposelenia](https://files.catbox.moe/i3a3xh.png)
+![hyposelenia](https://files.catbox.moe/ncmhzx.jpg)
 # intro !! 
 <p align="center">
 
@@ -12,7 +12,7 @@ best regards,
 finn
 </p>
 
-![image](https://github.com/user-attachments/assets/53ae078a-3d1c-4198-9a95-77b875aa019f)
+![image](https://files.catbox.moe/pba1xk.png)
 
 # BEFORE you interact with me !!
 
@@ -38,7 +38,7 @@ I have autism and very intense paranoia//anxiety//depression. This contributes t
 
 PUH LEASEEE PLEASE PLEASE know I don't intend to piss people off//make them upset//uncomfortable, if I do anything you don't like COMMUNICATE THAT WITH ME!! because otherwise I cannot improve on myself in that area :,).
 
-![image_17](https://github.com/user-attachments/assets/b169d357-da83-4c19-a1a6-6167cc89501a)
+![image_17](https://files.catbox.moe/5337ma.png)
 
 # Interact with EXTREME caution//thin ice
 
@@ -52,7 +52,9 @@ mha fandom.. some of y'all are weird as FUCK. and you need to stay away from me.
 
 roleplayers, I dont roleplay at all. NO HATE!!
 
-![image](https://github.com/user-attachments/assets/53ae078a-3d1c-4198-9a95-77b875aa019f)
+systems in general, IWEC. i don't hate you, i've had many bad experiences with systems /gen
+
+![image](https://files.catbox.moe/pba1xk.png)
 
 # DO NOT INTERACT
 
@@ -81,11 +83,11 @@ non-traumagenic systems//endo//tulpa systems and their supporters//defenders AND
 
 TREND HOPPERS!! /AIMMMMED
 
-![image_17](https://github.com/user-attachments/assets/b169d357-da83-4c19-a1a6-6167cc89501a)
+![image_17](https://files.catbox.moe/5337ma.png)
 
 # What else do I need to know?
 
 you can always pm me and ask me for my discord or tiktok ^_^!!! I will give you it if I trust you enough otherwise here are some links!
-[my rentry hoard list](https://rentry.co/xylene) // [pronouns.page](https://en.pronouns.page/@equaalba) // [my carrd](https://celadonmare.carrd.co/#) // [my strawpage (SIGN IT PLSPSLPSLS)](https://mascaraluctatori.straw.page/) OR [this one](https://lingbo.straw.page/)
+[my rentry hoard list](https://rentry.co/xylene) // [pronouns.page](https://en.pronouns.page/@equaalba) // [my carrd](https://celadonmare.carrd.co/#) // [my strawpage (SIGN IT PLSPSLPSLS)](https://selenia.straw.page/)
 
-![tumblr_89df77cfb7fc4e83ea6217a27228e38a_ade74bb3_2048](https://github.com/user-attachments/assets/da0e3077-26e7-47ca-9204-adf214ded0ac)
+![BINA ME!! IRL!!](https://files.catbox.moe/xwpb28.webp)
