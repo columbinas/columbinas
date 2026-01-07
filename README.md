@@ -73,7 +73,7 @@ stalkers
 
 pressuring me in any way//being very urgent towards me
 
-you genuinely hate on selfship- you're no fun
+antiyume/selfship
 
 weird kinnies
 
@@ -81,7 +81,9 @@ non-traumagenic systems//endo//tulpa systems and their supporters//defenders AND
 
 " you like x more than me " suuuureeee pal!!....
 
-TREND HOPPERS!! /AIMMMMED
+" x is my partner not yours" or " I'M x IRL and you're not " riigghhhttt.... yeah you're not fooling anyone #notbaited
+
+TREND HOPPERS!! 
 
 ![image_17](https://files.catbox.moe/5337ma.png)
 
@@ -90,4 +92,4 @@ TREND HOPPERS!! /AIMMMMED
 you can always pm me and ask me for my discord or tiktok ^_^!!! I will give you it if I trust you enough otherwise here are some links!
 [my rentry hoard list](https://rentry.co/xylene) // [pronouns.page](https://en.pronouns.page/@equaalba) // [my carrd](https://celadonmare.carrd.co/#) // [my strawpage (SIGN IT PLSPSLPSLS)](https://selenia.straw.page/)
 
-![columbina](https://files.catbox.moe/xwpb28.webp)
+![BINA ME!! IRL!!](https://files.catbox.moe/8wl7eg.jpg)
