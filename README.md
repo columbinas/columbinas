@@ -7,7 +7,7 @@ decorated a bit...
 CHECK OUT MY LINKS ON THE SIDE OR THE BOTTOM OF THIS GITHUB!! THEY'RE SUPA COOLSIES :)))!!
 
 FOR NOW... HII!! I'm selenia or finn!! I go by he/they/it pronouns, any work! I am 18!!! I have a beautifully cutieful handsome partner!!... I am the biggest fattest columbina fan/irl
-I promise i'm nice... just talk to me!!
+I promise i'm nice... just talk to me!! this is my main [rentry](https://rentry.co/billieeilish) ^_^
 
 where to find me:  MHA/docks/GI/DW areas! I typically am on safe server 1 or 18+
 
